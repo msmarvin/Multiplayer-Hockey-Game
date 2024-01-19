@@ -1,0 +1,1 @@
+Bu oyun iki kişi için tasarlanmıştır
